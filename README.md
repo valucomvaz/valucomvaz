@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @valucomvaz
+- 👀 I’m interested in music and some technology things
+- 🌱 I’m currently learning how to improve my skills on Python and stuff
+- 💞️ I’m looking to collaborate on projects that allow me to learn
+- 📫 How to reach me: valucomvaz@gmail.com
+- 😄 Pronouns: She/her
+- ⚡ Fun fact: I´m kind of a multi-instrumentalist
